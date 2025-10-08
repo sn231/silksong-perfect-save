@@ -1,4 +1,4 @@
-\# 空洞骑士：丝之歌 (Hollow Knight: Silksong) - 100% 完美存档
+\# 空洞骑士：丝之歌 (Hollow Knight: Silksong) - 100% 存档（音筒没有收集全）
 
 
 
@@ -51,4 +51,5 @@
 由snowlove留存
 
 \[2025年10月8日]
+
 
